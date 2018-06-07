@@ -1,2 +1,0 @@
-# Niko
-Nej
